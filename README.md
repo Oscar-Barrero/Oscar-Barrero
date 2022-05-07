@@ -4,7 +4,7 @@ My name is Oscar, I'm 19 years old, lover of technology and the new changes it b
 I am a proactive, dedicated, responsible, autonomous person, eager to grow professionally and personally.
 
 Contact:
-- LinkedIn: [Oscar-Barrero](https://www.linkedin.com/in/oscar-barrero/)\n
-- WhatsApp: +57 3195626271\n
+- LinkedIn: [Oscar-Barrero](https://www.linkedin.com/in/oscar-barrero/)
+- WhatsApp: +57 3195626271
 - E-mail: oscardanielbr@gmail.com
 
